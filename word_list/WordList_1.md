@@ -98,6 +98,194 @@ n. 运动 in motion 在运动中；提议
 
 emotion (n. 情绪，感情) promotion (n. 促进)
 
+## contrast
+
+vt. 使与... 对比，对照 contrast A with B 
+
+vi. 和...形成对照 （with）A contrast with B
+
+n. 对照，对比，差异 by contrast 对比之下  in contrast with/to sth 与 .. 对比
+
+## trend
+
+n. 趋势，倾向
+
+vi. 倾向 The prices of shares trend to go down.
+
+## honorable
+
+adj. 可敬的；荣誉的，光荣的
+
+## freelance
+
+adj. 自由职业的
+
+## appdendix
+
+n. 附录；附属物
+
+For the details of this contract(合同) , see the appendix.
+
+## objection
+
+n. 反对，异议 objection to sth 反对...
+
+I have no objection to spending the evening with your friends.
+
+ojectionable (adj. 引起反对的)
+
+## inflation
+
+n. 通货膨胀
+
+## hasty
+
+adj. 匆忙的，仓促的 eat a hasty lunch
+
+rushed(adj. 贸然的) careful(adj. 小心的)
+
+## interpret
+
+vt. 解释，说明；了解，认为；口译
+
+vi. 做口译
+
+interpretation (n. 解释，口译)
+
+## fraction
+
+n. 碎片；小部分 a fraction of 
+
+## rectangle
+
+n. 长方形
+
+## owl
+
+n. 猫头鹰
+
+## denote
+
+vt. 表示，意味着
+
+## editor
+
+n. 编辑，编者
+
+## fruitful
+
+adj. 多产的，果实累累的；富有成效的 a frutiful talk
+
+fruitless (adj. 无结果的)
+
+## system
+
+n. 系统；制度，体系
+
+## concede
+
+vt. 退让，让步，允许
+
+## dictate
+
+v. 口述，听写；命令；支配
+
+## lame
+
+adj. 跛的，有缺陷的；站不住脚的
+
+## exhaust
+
+vt. 使筋疲力尽，耗尽 be exhausted from ... 因...而十分疲乏；抽完，汲干
+
+n. 废气
+
+exhausted (adj. 耗尽的，疲惫的) exhausting (adj. 使筋疲力尽，使耗尽) exhaustive (adj. 彻底的，详尽的)
+
+## stiff
+
+adj. 激烈的  stiff competition
+
+## pinch
+
+n. （一）撮，微量 with a pinch of (有保留地); 捏，掐；紧缺，短缺
+
+vt. 捏，掐
+
+## pants
+
+n. 长裤，内裤
+
+## remnant
+
+n. 残余物；遗迹
+
+## projector
+
+n. 放映机，幻灯机，投影仪
+
+## torrent
+
+n. 激流，山洪
+
+## crisp
+
+adj. 脆的，易碎的
+
+n. 炸薯片
+
+## tag
+
+n. 标签
+
+vt. 贴标签于
+
+## duration
+
+n. 期间 throughout the duration；持久；持续时间
+
+## dealer
+
+n. 商人，贩子
+
+## incident
+
+n. 事件 a touching incident/ tragic incident
+
+## zeal
+
+n. 热情，热忱 a man of zeal 热心人
+
+## rhythm 
+
+n. 节奏，韵律
+
+## educate
+
+vt. 教育，培养，训练
+
+educated (adj. 受过教育的)
+
+## overlook
+
+vt. 漏看，忽略；俯瞰；宽容，放任
+
+overlooked (adj. 被忽视的)
+
+## shear
+
+vt. 剪，修剪
+
+## propaganda
+
+n. 宣传
+
+## prescribe
+
+vt. 指示，规定
+
+
+
 
 
 
