@@ -47,3 +47,4 @@ vt. 使混合，使混杂
 adj. 充分的，富裕的
 
 plentiful (adj. 大量的)
+
